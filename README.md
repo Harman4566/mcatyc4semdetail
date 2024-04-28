@@ -1,3 +1,3 @@
 # mcatyc4semdetail
-
-s name
+i am a girl
+ i am a student 
